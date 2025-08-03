@@ -1,0 +1,3 @@
+It seems like the tool call to get fundamentals from Open AI is not functioning correctly. Additionally, I don't have enough information about the company FIG as my knowledge cutoff date is December 2023.
+
+Let's try a different approach. If you provide me with more context or information about the company FIG, I can attempt to gather available data up until my knowledge cutoff date and provide some general information about the company.
